@@ -8,7 +8,7 @@
 </p>
 <p align="center">
 <strong>Whatsapp / Telegram :+91 9455870283</strong><br />
-<a href="wa.link/lel4vs">Click here to text me now!</a><br />
+<a href="https://wa.link/lel4vs">Click here to text me now!</a><br />
 
 <strong>Fast Delivery!</strong>
 </p>
